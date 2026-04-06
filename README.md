@@ -1,2 +1,2 @@
 # my-first-repo-bsit2B
-first repo
+My name is Jerson Mitch D. Pavia my name comes from the Olympus of zus.
